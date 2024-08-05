@@ -2,6 +2,6 @@
 
 Aprenda a jogar basquete 
 
--regras-
+ - regras -
 
 
